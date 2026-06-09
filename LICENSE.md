@@ -1,4 +1,4 @@
-# 
+# VIP Bitdefender Total Security سكريبتات لـ Mac OS | نهائي Bitdefender Total Security سكريبتات لـ PC Windows. مع سجل المعاملات و المراقبة في الوقت الفعلي — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
